@@ -6,7 +6,7 @@
 
 ###
 
-- 📚 I’m currently studying at [CIn - UFPE]([https://portal.cin.ufpe.br/](https://portal.cin.ufpe.br/))
+- 📚 I’m currently studying at [CIn - UFPE](https://portal.cin.ufpe.br/)
 
 ###
 
